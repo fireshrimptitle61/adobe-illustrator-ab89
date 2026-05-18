@@ -1,4 +1,4 @@
-# 
+# automatic Affinity Photo for PC executor is the best Affinity Photo for PC executor with vector-drawing and page-layout. Safe, reliable, and optimized for maximum performance.
 
 
 
